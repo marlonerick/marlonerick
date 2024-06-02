@@ -2,7 +2,7 @@
 
 ## Sobre mim
 
-Me chamo Marlon Erick, tenho 26 anos de idade moro no interior de São Paulo, gosto muito de desenvolvimento e aspirante e programador, amo aprender coisas novas e conhecer novas tecnologias e estou em busca de uma primeira vaga no mercado de DEV.
+Me chamo Marlon Erick, tenho 28 anos de idade moro em Santa Barbara D'oeste-SP, gosto muito de desenvolvimento e aspirante e programador, amo aprender coisas novas e conhecer novas tecnologias e estou em busca de uma primeira vaga no mercado de DEV.
 
 Amo da risada e se divertir e nos tempos livre gosto de me divertir jogando video games, assistir filmes ou series 🎮🎬.
 
